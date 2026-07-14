@@ -1,1 +1,1 @@
-[![My GitFut card](https://gitfut.com/YOUR_USERNAME.png)](https://gitfut.com/YOUR_USERNAME)
+[![My GitFut card](https://gitfut.com/hsh0367.png)](https://gitfut.com/hsh0367)
